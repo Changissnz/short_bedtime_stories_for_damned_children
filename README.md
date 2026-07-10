@@ -5,7 +5,8 @@ A collection of short bedtime stories for damned children in this brave new worl
 ## Table of Contents 
 1. [And Then ](#And-Then)  
 2. [It Is Not ](#It-Is-Not)  
-3. [Your ](#Your)  
+3. [Your ](#Your)
+4. [It Was Not Enough Because](#It-Was-Not-Enough-Because)  
 
 ----------------------------------------------------------------------------------
 
@@ -32,3 +33,8 @@ This isn't serious — it's a joke.
 
 Your institutions suck, brother. They take all the credit. How about you back off or get shot, man?  
 
+## It Was Not Enough Because  
+**A tidbit on rule and fair share**  
+
+It was not enough because once you got it, you had to do these things to stay on top. And it was because of 
+people like you that the world equilibrium was not improving without terrible things to happen. 
