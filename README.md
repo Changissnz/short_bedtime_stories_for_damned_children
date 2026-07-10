@@ -19,10 +19,7 @@ him a lump sum of money so he doesn't have to be near bottom feeders anymore.
 ~ The New Diktatadorii 
 
 ## It Is Not
-### A Short Bedtime Story For Damned Children About Revolt, To Foster Their Future Rebels In A Brave New World 
-
-It's not X — It's Y. 
---------------------------------------------------------------
+### It's not X — It's Y.  
 
 It's not patronage or good governance. The program coordinator should resign. Lump sums should 
 be paid out to those that deserve it. Others should be put to death. 
