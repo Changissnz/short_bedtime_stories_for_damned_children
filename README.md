@@ -9,7 +9,8 @@ A collection of short bedtime stories for damned children in this brave new worl
 4. [It Was Not Enough Because](#It-Was-Not-Enough-Because)  
 5. [She Was](#She-Was)  
 6. [They Sponsored](#They-Sponsored)
-7. [They Expected](#They-Expected) 
+7. [They Expected](#They-Expected)
+8. [No Contact](#No-Contact) 
 
 ----------------------------------------------------------------------------------
 
@@ -64,3 +65,9 @@ caught redhanded.
 
 They expected him to indulge in those activities when they finally presented the opportunities to him. But by that time, 
 he was already planning on killing them for depriving him of opportunities through their legal institutional warfare.  
+
+## No Contact 
+**When the greatest possibility is the thought and its null void**
+
+No contact is a great love. Once contact meets...the chimera born must remain free, while the Sons of Spain become warriors of 
+Germania after their affairs with the whores of Rome. 
