@@ -76,5 +76,5 @@ Germania after their affairs with the whores of Rome.
 ## He That Is Corrupt  
 **Morality is not simple input/output. Not every action results in a desired reaction.**  
 
-He that is corrupt but pays his indulgences goes about his day, riding around and getting it like any other day. Is he a banker, a 
-merchant, an officer, or some other kind of elite? Who knows on that? 
+He that is corrupt but pays his indulgences goes about his day, riding around and getting it like any other fine day in his exuberant life. 
+Is he a banker, a merchant, an officer, or some other kind of elite? Who knows on that? 
