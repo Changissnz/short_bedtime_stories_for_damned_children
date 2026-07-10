@@ -38,3 +38,20 @@ Your institutions suck, brother. They take all the credit. How about you back of
 
 It was not enough because once you got it, you had to do these things to stay on top. And it was because of 
 people like you that the world equilibrium was not improving without terrible things to happen. 
+
+## She Was  
+**A case study of why females are not inherently better**  
+
+She thought herself so moral. After getting more than fairly compensated through government subsidies, she could 
+have just chilled out and settled down. But she was always griping at her aging parents. She hurled insults at her 
+eldest son on the daily. Her middle son hated her and kept it to himself. Her youngest daughter was a classic 
+sycophant that chimed in with her on berating the eldest son. And she never stopped to realize her treatment played 
+right in the hand of the era's corporate thieves. None of her children were getting cut into the corporate wealth that 
+easily. And that gave her reason to try to be queen. But she was a pleb and acted like a foster mother. She was the 
+reason why the family became no more. 
+
+## They Sponsored 
+**When so-proclaimed givers give short**  
+
+Free smut and narcotics. And always sold out the whores and killed the Asian and Mexican dealers every time they got 
+caught redhanded. 
