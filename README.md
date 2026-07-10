@@ -9,7 +9,7 @@ A collection of short bedtime stories for damned children in this brave new worl
 ----------------------------------------------------------------------------------
 
 ## And Then  
-### There is not always justice, but there is always a freer person.  
+**There is not always justice, but there is always a freer person.**  
 
 ... and then they staged that on him. Got a lot of people involved in that. Made a mess out of his environment.  
 
@@ -19,7 +19,7 @@ him a lump sum of money so he doesn't have to be near bottom feeders anymore.
 ~ The New Diktatadorii 
 
 ## It Is Not
-### It's not X — It's Y.  
+**It's not X — It's Y.**  
 
 It's not patronage or good governance. The program coordinator should resign. Lump sums should 
 be paid out to those that deserve it. Others should be put to death. 
