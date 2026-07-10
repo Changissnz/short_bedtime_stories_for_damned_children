@@ -56,7 +56,7 @@ reason why the family became no more.
 ## They Sponsored 
 **When so-proclaimed givers give short**  
 
-Free smut and narcotics. And always sold out the whores and killed the Asian and Mexican dealers every time they got 
+They sponsored free smut and narcotics. And always sold out the whores and killed the Asian and Mexican dealers every time they got 
 caught redhanded. 
 
 ## They Expected  
