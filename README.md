@@ -4,7 +4,8 @@ A collection of short bedtime stories for damned children in this brave new worl
 
 ## Table of Contents 
 1. [And Then ](#And-Then)  
-2. [It Is Not ](#It-Is-Not) 
+2. [It Is Not ](#It-Is-Not)  
+3. [Your ](#Your)  
 
 ----------------------------------------------------------------------------------
 
@@ -21,7 +22,13 @@ him a lump sum of money so he doesn't have to be near bottom feeders anymore.
 ## It Is Not
 **It's not X — It's Y.**  
 
-It's not patronage or good governance. The program coordinator should resign. Lump sums should 
+It is not patronage or good governance. The program coordinator should resign. Lump sums should 
 be paid out to those that deserve it. Others should be put to death. 
 
 This isn't serious — it's a joke. 
+
+## Your  
+**Not even a quarter of the measure, and you think...**  
+
+Your institutions suck, brother. They take all the credit. How about you back off or get shot, man?  
+
