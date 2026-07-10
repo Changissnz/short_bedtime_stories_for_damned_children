@@ -5,8 +5,11 @@ A collection of short bedtime stories for damned children in this brave new worl
 ## Table of Contents 
 1. [And Then ](#And-Then)  
 2. [It Is Not ](#It-Is-Not)  
-3. [Your ](#Your)
+3. [Your ](#Your)  
 4. [It Was Not Enough Because](#It-Was-Not-Enough-Because)  
+5. [She Was](#She-Was)  
+6. [They Sponsored](#They-Sponsored)
+7. [They Expected](#They-Expected) 
 
 ----------------------------------------------------------------------------------
 
@@ -42,7 +45,7 @@ people like you that the world equilibrium was not improving without terrible th
 ## She Was  
 **A case study of why females are not inherently better**  
 
-She thought herself so moral. After getting more than fairly compensated through government subsidies, she could 
+She was so moral, she thought. After getting more than fairly compensated through government subsidies, she could 
 have just chilled out and settled down. But she was always griping at her aging parents. She hurled insults at her 
 eldest son on the daily. Her middle son hated her and kept it to himself. Her youngest daughter was a classic 
 sycophant that chimed in with her on berating the eldest son. And she never stopped to realize her treatment played 
@@ -55,3 +58,9 @@ reason why the family became no more.
 
 Free smut and narcotics. And always sold out the whores and killed the Asian and Mexican dealers every time they got 
 caught redhanded. 
+
+## They Expected  
+**When the thoughts and actions remain worlds apart**  
+
+They expected him to indulge in those activities when they finally presented the opportunities to him. But by that time, 
+he was already planning on killing them for depriving him of opportunities through their legal institutional warfare.  
