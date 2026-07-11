@@ -17,6 +17,7 @@ A collection of short bedtime stories for damned children in this brave new worl
 12. [When They](#When-They)
 13. [He Does Not](#He-Does-Not)
 14. [The Organization Behind](#The-Organization-Behind)
+15. [A Brief](#A-Brief)
 
 ----------------------------------------------------------------------------------
 
@@ -122,3 +123,7 @@ This would work out all the same for justice if they were part of the government
 falls in line with cruel and unusual punishment as well as cognitive distortion to certain individuals. It's only a conspiracy theory if they continue to thrive 
 under this guise of public service / public defense. 
 
+## A Brief 
+**There just is not enough energy to continue some things.**
+
+A brief farewell, from the Gothic outreaches. There is nothing left when nothing is right. The musings and shortcomings are features — not bugs. 
