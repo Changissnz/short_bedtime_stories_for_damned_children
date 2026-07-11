@@ -11,11 +11,11 @@ A collection of short bedtime stories for damned children in this brave new worl
 6. [They Sponsored](#They-Sponsored)
 7. [They Expected](#They-Expected)
 8. [No Contact](#No-Contact)
-9. [He That Is Corrupt](#He-That-Is-Corrupt)
+9. [He That Is](#He-That-Is)
 10. [He Saw How](#He-Saw-How)
-11. [They Call It Cowardly](#They-Call-It-Cowardly)
+11. [They Call It](#They-Call-It)
 12. [When They](#When-They)
-13. [He Does Not Trust](#He-Does-Not-Trust) 
+13. [He Does Not](#He-Does-Not) 
 
 ----------------------------------------------------------------------------------
 
@@ -77,7 +77,7 @@ he was already planning on killing them for depriving him of opportunities throu
 No contact is a great love. Once contact meets...the chimera born must remain free, while the Sons of Spain become warriors of 
 Germania after their affairs with the whores of Rome. 
 
-## He That Is Corrupt  
+## He That Is   
 **Morality is not simple input/output. Not every action results in a desired reaction.**  
 
 He that is corrupt but pays his indulgences goes about his day, riding around and getting it like any other fine day in his exuberant life. 
@@ -92,7 +92,7 @@ hypothesized that those that tried to be something more faced stigma on the scal
 to pledge in full, especially since he was part of the Outer Ring. He was viewed with contempt, envy, and suspicion during his lifetime. When he was 
 alive, he was also forgotten in the official sense. 
 
-## They Call It Cowardly 
+## They Call It  
 **If there is no bravery without madness, a coward's way out is the only free choice.**
 
 They call it cowardly for some to shirk their assigned duties in order to pursue their dreams. But their calling the journey that would only make sense 
@@ -105,7 +105,7 @@ When they chose to guide the man through applying forceful personalities against
 and diverted his attention to applications that would undoubtedly result in disgrace if not death for some people. They called it "an experimental ballad in the 
 humanities". He thinks they deserve the bitter taste of disappointment in such ways of long-lasting effects. 
 
-## He Does Not Trust  
+## He Does Not  
 **They actively made efforts to outsmart him and called him stupid.**
 
 He does not trust anymore ever since believing that they actively made efforts to outsmart him. He thinks they are a wretched people. He feels that one woman had 
