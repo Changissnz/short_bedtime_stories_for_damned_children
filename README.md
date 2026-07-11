@@ -14,6 +14,7 @@ A collection of short bedtime stories for damned children in this brave new worl
 9. [He That Is Corrupt](#He-That-Is-Corrupt)
 10. [He Saw How](#He-Saw-How)
 11. [They Call It Cowardly](#They-Call-It-Cowardly)
+12. [When They](#When-They) 
 
 ----------------------------------------------------------------------------------
 
@@ -95,4 +96,11 @@ alive, he was also forgotten in the official sense.
 
 They call it cowardly for some to shirk their assigned duties in order to pursue their dreams. But their calling the journey that would only make sense 
 if they were part of the impediments standing in the way, impediments so great those dreams must have been delusions.  
+
+## When They 
+**And they are sometimes the same ones that ask where hate comes from.**  
+
+When they chose to guide the man through applying forceful personalities against him, those experiences corrupted his puritanical studies, devalued his research, 
+and diverted his attention to applications that would undoubtedly result in disgrace if not death for some people. They call it "an experimental ballad in the 
+humanities". He thinks they deserve the bitter taste of disappointment in such ways of long-lasting effects. 
 
