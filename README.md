@@ -15,7 +15,8 @@ A collection of short bedtime stories for damned children in this brave new worl
 10. [He Saw How](#He-Saw-How)
 11. [They Call It](#They-Call-It)
 12. [When They](#When-They)
-13. [He Does Not](#He-Does-Not) 
+13. [He Does Not](#He-Does-Not)
+14. [The Organization Behind](#The-Organization-Behind)
 
 ----------------------------------------------------------------------------------
 
@@ -112,3 +113,12 @@ He does not trust anymore ever since believing that they actively made efforts t
 deep-seated issues and secretly felt offended he did not make harder advances toward her. If it is not a setup, it's a person with an agenda, he believes. And for that, 
 he has cut off exchanges with most people. The times were constraining, and he feels the squeeze will eventually just let in some deadly venom for the surviving consortium 
 to disperse. 
+
+## The Organization Behind
+**Not all criminals resort to physical violence. Not all government is not criminal.** 
+
+The organization behind the subliminal messaging, done through the electrical grid, must be dismantled and possibly killed for posing a national security risks. 
+This would work out all the same for justice if they were part of the government. They are most likely contractors. The subliminal messaging may be mild, but it 
+falls in line with cruel and unusual punishment as well as cognitive distortion to certain individuals. It's only a conspiracy theory if they continue to thrive 
+under this guise of public service / public defense. 
+
