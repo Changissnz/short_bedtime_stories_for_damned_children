@@ -11,7 +11,8 @@ A collection of short bedtime stories for damned children in this brave new worl
 6. [They Sponsored](#They-Sponsored)
 7. [They Expected](#They-Expected)
 8. [No Contact](#No-Contact)
-9. [He That Is Corrupt](#He-That-Is-Corrupt)  
+9. [He That Is Corrupt](#He-That-Is-Corrupt)
+10. [He Saw How](#He-Saw-How) 
 
 ----------------------------------------------------------------------------------
 
@@ -78,3 +79,13 @@ Germania after their affairs with the whores of Rome.
 
 He that is corrupt but pays his indulgences goes about his day, riding around and getting it like any other fine day in his exuberant life. 
 Is he a banker, a merchant, an officer, or some other kind of elite? Who knows on that? 
+
+## He Saw How  
+**Sometimes, loyalty can be bought because there is none for some in the first place.**  
+
+He saw how the older generation got treated. He categorically noted who came out better, those that were unscathed, those that benefitted greatly 
+from making theatrical moral statements, and those that got trampled on. He saw how those that chose not to complain moved into lesser work. He 
+hypothesized that those that tried to be something more faced stigma on the scale of suspected murder. So he never pledged in full. He never needed 
+to pledge in full, especially since he was part of the Outer Ring. He was viewed with contempt and envy during his lifetime. When he was alive, he was 
+also forgotten in the official sense. 
+
