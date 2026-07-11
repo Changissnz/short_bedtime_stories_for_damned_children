@@ -117,7 +117,7 @@ to disperse.
 ## The Organization Behind
 **Not all criminals resort to physical violence. Not all government is not criminal.** 
 
-The organization behind the subliminal messaging, done through the electrical grid, must be dismantled and possibly killed for posing a national security risks. 
+The organization behind the subliminal messaging, done through the electrical grid, must be dismantled and possibly killed for posing national security risks. 
 This would work out all the same for justice if they were part of the government. They are most likely contractors. The subliminal messaging may be mild, but it 
 falls in line with cruel and unusual punishment as well as cognitive distortion to certain individuals. It's only a conspiracy theory if they continue to thrive 
 under this guise of public service / public defense. 
