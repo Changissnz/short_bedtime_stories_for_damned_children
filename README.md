@@ -12,7 +12,8 @@ A collection of short bedtime stories for damned children in this brave new worl
 7. [They Expected](#They-Expected)
 8. [No Contact](#No-Contact)
 9. [He That Is Corrupt](#He-That-Is-Corrupt)
-10. [He Saw How](#He-Saw-How) 
+10. [He Saw How](#He-Saw-How)
+11. [They Call It Cowardly](#They-Call-It-Cowardly)
 
 ----------------------------------------------------------------------------------
 
@@ -86,6 +87,12 @@ Is he a banker, a merchant, an officer, or some other kind of elite? Who knows o
 He saw how the older generation got treated. He categorically noted who came out better, those that were unscathed, those that benefitted greatly 
 from making theatrical moral statements, and those that got trampled on. He saw how those that chose not to complain moved into lesser work. He 
 hypothesized that those that tried to be something more faced stigma on the scale of suspected murder. So he never pledged in full. He never needed 
-to pledge in full, especially since he was part of the Outer Ring. He was viewed with contempt and envy during his lifetime. When he was alive, he was 
-also forgotten in the official sense. 
+to pledge in full, especially since he was part of the Outer Ring. He was viewed with contempt, envy, and suspicion during his lifetime. When he was 
+alive, he was also forgotten in the official sense. 
+
+## They Call It Cowardly 
+**If there is no bravery without madness, a coward's way out is the only free choice.**
+
+They call it cowardly for some to shirk their assigned duties in order to pursue their dreams. But their calling the journey that would only make sense 
+if they were part of the impediments standing in the way, impediments so great those dreams must have been delusions.  
 
