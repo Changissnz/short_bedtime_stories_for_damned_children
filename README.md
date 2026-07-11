@@ -14,7 +14,8 @@ A collection of short bedtime stories for damned children in this brave new worl
 9. [He That Is Corrupt](#He-That-Is-Corrupt)
 10. [He Saw How](#He-Saw-How)
 11. [They Call It Cowardly](#They-Call-It-Cowardly)
-12. [When They](#When-They) 
+12. [When They](#When-They)
+13. [He Does Not Trust](#He-Does-Not-Trust) 
 
 ----------------------------------------------------------------------------------
 
@@ -101,6 +102,13 @@ if they were part of the impediments standing in the way, impediments so great t
 **And they are sometimes the same ones that ask where hate comes from.**  
 
 When they chose to guide the man through applying forceful personalities against him, those experiences corrupted his puritanical studies, devalued his research, 
-and diverted his attention to applications that would undoubtedly result in disgrace if not death for some people. They call it "an experimental ballad in the 
+and diverted his attention to applications that would undoubtedly result in disgrace if not death for some people. They called it "an experimental ballad in the 
 humanities". He thinks they deserve the bitter taste of disappointment in such ways of long-lasting effects. 
 
+## He Does Not Trust  
+**They actively made efforts to outsmart him and called him stupid.**
+
+He does not trust anymore ever since believing that they actively made efforts to outsmart him. He thinks they are a wretched people. He feels that one woman had 
+deep-seated issues and secretly felt offended he did not make harder advances towards her. If it is not a setup, it's a person with an agenda, he believes. And for that, 
+he has cut off exchanges with most people. The times were constraining, and he feels the squeeze will eventually just let in some deadly venom for the surviving consortium 
+to disperse. 
