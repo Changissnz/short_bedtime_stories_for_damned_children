@@ -109,6 +109,6 @@ humanities". He thinks they deserve the bitter taste of disappointment in such w
 **They actively made efforts to outsmart him and called him stupid.**
 
 He does not trust anymore ever since believing that they actively made efforts to outsmart him. He thinks they are a wretched people. He feels that one woman had 
-deep-seated issues and secretly felt offended he did not make harder advances towards her. If it is not a setup, it's a person with an agenda, he believes. And for that, 
+deep-seated issues and secretly felt offended he did not make harder advances toward her. If it is not a setup, it's a person with an agenda, he believes. And for that, 
 he has cut off exchanges with most people. The times were constraining, and he feels the squeeze will eventually just let in some deadly venom for the surviving consortium 
 to disperse. 
